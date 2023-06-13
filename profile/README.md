@@ -4,7 +4,7 @@
 
 # TBNR Productions
 
-We are a new-age media production & tech startup company with an extensive reach of 60 million subscribers and 19 billion views on YouTube. Our mission is to create innovative and engaging content, leveraging the power of technology.
+We are a new-age media production & tech startup company with an extensive reach of over 70 million subscribers and 18 billion views on YouTube. Our mission is to create innovative and engaging content, leveraging the power of technology.
 
 ## Careers
 
